@@ -1,2 +1,0 @@
-# techXcelerate2
-s
